@@ -1,1 +1,0 @@
-# HSG-Finance-Research-Seminar
